@@ -10,17 +10,29 @@ check my rentry for actual info ask questions on strawpage or neospring
 ¨¨ Random facts.
 
 I'm an aspiring multimedia artist-- I'm slowly learning stuff like music production and 3D animation, though don't really talk about it. 
+
 I currently draw traditionally and digitally. I don't do commissions yet.
+
 I speak English and French, though I feel as if I'm losing my French since I don't talk to many French people, plus I never got much of the slang.
+
 I take interest in biology, chemistry and some mechanic sciences. 
+
 My favorite element is Potassium. 
+
 My favorite bone is the femur. 
+
 I like taking things apart and putting them back together.
+
 I like science-oriented fiction projects such as the SCP foundation and Mystery Flesh Pit National Park.
+
 My favorite cartoons are Glitch Techs and The Deep.
+
 My least favorite Naruto/Boruto character is Isshiki Otsutsuki.
+
 My favorite Naruto/Boruto characters are Konan, Yahiko, Nagato, Mitsuki, Sarada Uchiha, Itachi Uchiha, Sai Yamanaka, Tenten, Gaara, Rock Lee, Sakura Haruno, Hinata Hyuuga.
+
 My favorite foods are Beef Jerkey, Peach iced Tea, Guacamole.
+
 My least favorite foods are Endives, Plain bread, Emmental cheese, Anything spicy.
 
 <!--
