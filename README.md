@@ -11,6 +11,7 @@ check my rentry for actual info ask questions on strawpage or neospring
 
 ![Pfviews](https://komarev.com/gphvc/?MelonOctoling&style=plastic&base=0&color=blueviolet)
 
+
 ¨¨ Random facts.
 
 I'm an aspiring multimedia artist-- I'm slowly learning stuff like music production and 3D animation, though don't really talk about it. 
@@ -39,6 +40,7 @@ My favorite foods are Beef Jerkey, Peach iced Tea, Guacamole.
 
 My least favorite foods are Endives, Plain bread, Emmental cheese, Anything spicy.
 
+![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 <!--
 **MelonOctoling/MelonOctoling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
