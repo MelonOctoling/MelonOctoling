@@ -9,7 +9,7 @@ on discord & ponytown sometimes i revert to talking in single emoji sentences or
 
 check my rentry for actual info ask questions on strawpage or neospring 
 
-![](https://komarev.com/ghpvc/?username=MelonOctoling&color=dc143c&style=plastic&label=PROFILE+VIEWS)
+![](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=SEERS)
 
 
 ¨¨ Random facts.
