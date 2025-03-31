@@ -9,6 +9,8 @@ on discord & ponytown sometimes i revert to talking in single emoji sentences or
 
 check my rentry for actual info ask questions on strawpage or neospring 
 
+![](https://komarev.com/ghpvc/?MelonOctoling&style=plastic&base=0&color=blueviolet)
+
 ¨¨ Random facts.
 
 I'm an aspiring multimedia artist-- I'm slowly learning stuff like music production and 3D animation, though don't really talk about it. 
