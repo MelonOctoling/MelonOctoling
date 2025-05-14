@@ -8,8 +8,9 @@ any1 from my fandoms can sit with me idm but it might get awkward for both of us
 ![](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) 
 
 
-sorry if yall wanted to reread my random facts i didnt like how my README looked
-my bad
+sorry if yall wanted to reread my random facts i didnt like how my README looked,,,
+
+my bad 
 
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 <!--
