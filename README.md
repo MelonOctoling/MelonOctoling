@@ -12,6 +12,8 @@ sorry if yall wanted to reread my random facts i didnt like how my README looked
 
 my bad 
 
+[OPERATION HELLDIVE WAS A FAILURE.](https://rentry.co/d-freq-crush)
+
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 <!--
 **MelonOctoling/MelonOctoling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
