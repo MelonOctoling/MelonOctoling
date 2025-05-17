@@ -14,6 +14,12 @@ my bad
 
 [OPERATION HELLDIVE WAS A FAILURE.](https://rentry.co/d-freq-crush)
 
+...
+
+Btw can we not whisper me for "whimper audios" when I'm cosplaying Aizetsu, you're not funny you're just creepy. Hi hello I'm a MINOR behind the screen not a 200 year old demon!!! 
+
+Also it's just weird even if I was an adult, because you're probably kids...
+
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 <!--
 **MelonOctoling/MelonOctoling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
