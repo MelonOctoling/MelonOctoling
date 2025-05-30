@@ -16,6 +16,7 @@ my bad
 
 ...
 
+
 Btw can we not whisper me for "whimper audios" when I'm cosplaying Aizetsu, you're not funny you're just creepy. Hi hello I'm a MINOR behind the screen not a 200 year old demon!!! 
 
 Also it's just weird even if I was an adult, because you're probably kids...
