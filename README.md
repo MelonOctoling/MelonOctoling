@@ -1,4 +1,4 @@
-## hihi draw on my strawpage and i (might) doodle back if u send urs. please send asks on neospring
+## hihi draw on my strawpage and i (might) doodle back if u send urs
 dear ponytowners if ur gonna int with me please SEND WHISPERS instead of directly talking in front of my face,, im very very scared of people + i dont know when its directed at me + i might be offtab or zoning out
 
 skins of my kins scare me i love you all but i cant stand seeing literally me everywhere unless i know u ^_^
