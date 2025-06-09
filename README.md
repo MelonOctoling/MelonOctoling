@@ -1,16 +1,17 @@
-## hihi draw on my strawpage and i (might) doodle back if u send urs
-dear ponytowners if ur gonna int with me please SEND WHISPERS instead of directly talking in front of my face,, im very very scared of people + i dont know when its directed at me + i might be offtab or zoning out
+## Hellow ponytown. hi hi hi hello hi
+Whisper instead of directly interacting with me out of the blue cuz I dissociate or zone out a lot  ! ! Also conversation might get uncomfortable because I go from chatty to silent really fast + i am accidentally mean sometimes
 
-skins of my kins scare me i love you all but i cant stand seeing literally me everywhere unless i know u ^_^
+Skins of my fictionkins & fictives scare me im sorry. its not rlly "doubles dni" but it is sortof,, it depends which kin ya know
 
-any1 from my fandoms can sit with me idm but it might get awkward for both of us (i am either very weirdly talkative or very silent. or mean and i dont really have control over that)
+Main profile: [/lady-angel](https://rentry.co/lady-angel)
+Extended: [/kintsuchi](https://rentry.co/kintsuchi)
+Directory: [/framedrag](https://rentry.co/framedrag)
+
+super amazing super cool music rentry that you should click on and click every link and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
+
+Send me messages on [strawpage](https://melonoctoling.straw.page) or [tetratto](https://tetratto.com/@melonoctoling)
 
 ![](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) 
-
-
-sorry if yall wanted to reread my random facts i didnt like how my README looked,,,
-
-my bad 
 
 [OPERATION HELLDIVE WAS A FAILURE.](https://rentry.co/d-freq-crush)
 
