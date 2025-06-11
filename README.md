@@ -9,9 +9,10 @@ Extended: [/kintsuchi](https://rentry.co/kintsuchi)
 
 Directory: [/framedrag](https://rentry.co/framedrag)
 
-super amazing super cool music rentry that you should click on and click every link and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
+super amazing super cool music rentry that you should click on!! and click every link!! and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
 
 Send me messages on [strawpage](https://melonoctoling.straw.page) or [tetratto](https://tetratto.com/@melonoctoling)
+(or my atabook. too lazy to link it rn)
 
 ![](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) 
 
