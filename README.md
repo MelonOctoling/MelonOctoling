@@ -20,7 +20,7 @@ Send me messages on [strawpage](https://melonoctoling.straw.page) or [tetratto](
 
 ...
 
-![](sumi-nakahara-kiyo-terauchi.gif)
+![](1130319964_11036605022_1747766797348.png)
 
 Btw can we not whisper me for "whimper audios" when I'm cosplaying Aizetsu, you're not funny you're just creepy. Hi hello I'm a MINOR behind the screen not a 200 year old demon!!! 
 
