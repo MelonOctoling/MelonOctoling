@@ -8,7 +8,7 @@ Skins of my fictionkins & fictives scare me im sorry. its not rlly "doubles dni"
 
 id like to warn some of you that i can type incredibly incomprehensibly. like not in the blabber on kind of way I usually do, i mean like. writing "oidikdi wuio it six  so i hcisode him adn,f facet him is frirst a,swner to this is ndke n dontt" (real message i sent on discord btw). i think this is a new facet.
 
-<img src="image_2025-06-23_064334221.png" width="400" height="70">
+<img src="image_2025-06-23_071141498.png" width="400" height="70">
 
 Main profile: [/lady-angel](https://rentry.co/lady-angel)
 
@@ -16,7 +16,7 @@ Extended: [/kintsuchi](https://rentry.co/kintsuchi)
 
 super amazing super cool music rentry that you should click on!! and click every link!! and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
 
-<img src="image.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> 
+<img src="image_2025-06-23_071113700.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> 
 
 <img src="blankroom.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> <img src="playroom.png" width="70" height="70">
 
