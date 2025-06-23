@@ -16,7 +16,9 @@ Extended: [/kintsuchi](https://rentry.co/kintsuchi)
 
 super amazing super cool music rentry that you should click on!! and click every link!! and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
 
-<img src="image.png" width="70" height="70">
+<img src="image.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> 
+
+<img src="blankroom.png" width="70" height="70"> <img src="blankroom.png" width="70" height="70"> <img src="playroom.png" width="70" height="70">
 
 [OPERATION HELLDIVE WAS A FAILURE.](https://rentry.co/d-freq-crush)
 
