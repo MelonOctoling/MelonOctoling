@@ -8,38 +8,22 @@ Skins of my fictionkins & fictives scare me im sorry. its not rlly "doubles dni"
 
 id like to warn some of you that i can type incredibly incomprehensibly. like not in the blabber on kind of way I usually do, i mean like. writing "oidikdi wuio it six  so i hcisode him adn,f facet him is frirst a,swner to this is ndke n dontt" (real message i sent on discord btw). i think this is a new facet.
 
+<img src="image_2025-06-23_064334221.png" width="400" height="70">
+
 Main profile: [/lady-angel](https://rentry.co/lady-angel)
 
 Extended: [/kintsuchi](https://rentry.co/kintsuchi)
 
-Directory: [/framedrag](https://rentry.co/framedrag)
-
 super amazing super cool music rentry that you should click on!! and click every link!! and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
 
-Send me messages on [strawpage](https://melonoctoling.straw.page) or [atabook](https://melonoctoling.atabook.org)
+<img src="image.png" width="70" height="70">
 
 [OPERATION HELLDIVE WAS A FAILURE.](https://rentry.co/d-freq-crush)
 
-...
 
-![](1130319964_11036605022_1747766797348.png)
 
-Btw can we not whisper me for "whimper audios" when I'm cosplaying Aizetsu, you're not funny you're just creepy. Hi hello I'm a MINOR behind the screen not a 200 year old demon!!! 
-
-Also it's just weird even if I was an adult, because you're probably kids...
 
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
-<!--
-**MelonOctoling/MelonOctoling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+"Plural I/me" userbox by [wonderlandsresources on tumblr](https://www.tumblr.com/wonderlandsresources)
+Tomodachi Life themed pngs by [chocoperrito on tumblr](https://www.tumblr.com/chocoperrito)
