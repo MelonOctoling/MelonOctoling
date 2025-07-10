@@ -9,6 +9,7 @@ Skins of my fictionkins & fictives scare me im sorry. its not rlly "doubles dni"
 id like to warn some of you that i can type incredibly incomprehensibly. like not in the blabber on kind of way I usually do, i mean like. writing "oidikdi wuio it six  so i hcisode him adn,f facet him is frirst a,swner to this is ndke n dontt" (real message i sent on discord btw). i think this is a new facet.
 
 <img src="image_2025-06-23_071141498.png" width="400" height="70">
+<img src="image_2025-07-10_060441653.png" width="400" height="70">
 
 Main profile: [/lady-angel](https://rentry.co/lady-angel)
 
@@ -28,5 +29,7 @@ super amazing super cool music rentry that you should click on!! and click every
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 
 "Plural I/me" userbox by [wonderlandsresources on tumblr](https://www.tumblr.com/wonderlandsresources)
+
+"OUR fictives aren't here for YOUR weird fantasies" userbox by me
 
 Tomodachi Life themed pngs by [chocoperrito on tumblr](https://www.tumblr.com/chocoperrito)
