@@ -1,5 +1,5 @@
 
-![hi](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) 
+![hi](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) <img src="8287fd1fb2aa39ae8057afe9efd2fdc5fbf364f0.gif">
 
 ## Hellow ponytown. hi hi hi hello hi
 Whisper instead of directly interacting with me out of the blue cuz I dissociate or zone out a lot  ! ! Also conversation might get uncomfortable because I go from chatty to silent really fast + i am accidentally mean sometimes
@@ -28,8 +28,6 @@ super amazing super cool music rentry that you should click on!! and click every
 
 ![mmrp](https://hit.yhype.me/github/profile?account_id=148920820)
 
-"Plural I/me" userbox by [wonderlandsresources on tumblr](https://www.tumblr.com/wonderlandsresources)
-
-"OUR fictives aren't here for YOUR weird fantasies" userbox by me
+"Plural I/me" userbox & "median chimaera" button by [wonderlandsresources on tumblr](https://www.tumblr.com/wonderlandsresources)
 
 Tomodachi Life themed pngs by [chocoperrito on tumblr](https://www.tumblr.com/chocoperrito)
