@@ -36,3 +36,5 @@ super amazing super cool music rentry that you should click on!! and click every
 "Plural I/me" userbox & "median chimaera" button by [wonderlandsresources on tumblr](https://www.tumblr.com/wonderlandsresources)
 
 Tomodachi Life themed pngs by [chocoperrito on tumblr](https://www.tumblr.com/chocoperrito)
+
+Food & Moth themed userboxes by [rhapsotea on tumblr](https://www.tumblr.com/rhapsotea)
