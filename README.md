@@ -2,11 +2,15 @@
 ![hi](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) <img src="8287fd1fb2aa39ae8057afe9efd2fdc5fbf364f0.gif">
 
 ## Hellow ponytown. hi hi hi hello hi
-Whisper instead of directly interacting with me out of the blue cuz I dissociate or zone out a lot  ! ! Also conversation might get uncomfortable because I go from chatty to silent really fast + i am accidentally mean sometimes
+rewriting partially because nothing makes sense
 
-Skins of my fictionkins & fictives scare me im sorry. its not rlly "doubles dni" but it is sortof,, it depends which kin ya know
+Whisper preferred if you just see us sitting around :) with friends is included here but usually we aren't offtab or zoning out when with friends
 
-id like to warn some of you that i can type incredibly incomprehensibly. like not in the blabber on kind of way I usually do, i mean like. writing "oidikdi wuio it six  so i hcisode him adn,f facet him is frirst a,swner to this is ndke n dontt" (real message i sent on discord btw). i think this is a new facet.
+conversation WILL get uncomfortable fast for either me or you . i am NOT built for conversations with strangers and i MAY be really mean or just silent
+
+doubles iwc. youre cool and all but like we all get reaallyy nervous
+
+sometimes we talk in keyboard smash
 
 <img src="image_2025-06-23_071141498.png" width="400" height="70">
 <img src="image_2025-07-10_060441653.png" width="400" height="70">
