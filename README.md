@@ -43,3 +43,5 @@ super amazing super cool music rentry that you should click on!! and click every
 Tomodachi Life themed pngs by [chocoperrito on tumblr](https://www.tumblr.com/chocoperrito)
 
 Food & Moth themed userboxes by [rhapsotea on tumblr](https://www.tumblr.com/rhapsotea)
+
+Genderfluid SCP logo by [lgbtqtext on tumblr](https://www.tumblr.com/lgbtqtext)
