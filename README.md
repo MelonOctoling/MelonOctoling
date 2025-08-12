@@ -1,5 +1,6 @@
 
-![hi](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) <img src="8287fd1fb2aa39ae8057afe9efd2fdc5fbf364f0.gif">
+<img src="ezgif.com-optimize.gif" width="40" height="40"> ![hi](https://komarev.com/ghpvc/?username=MelonOctoling&color=blueviolet&style=plastic&label=Profile+Hits) <img src="8287fd1fb2aa39ae8057afe9efd2fdc5fbf364f0.gif"> 
+
 
 ## Hellow ponytown. hi hi hi hello hi
 rewriting partially because nothing makes sense
