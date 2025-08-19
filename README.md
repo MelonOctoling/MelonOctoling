@@ -18,7 +18,7 @@ sometimes we talk in keyboard smash
 
 Main profile: [/lady-angel](https://rentry.co/lady-angel)
 
-Extended: [/kintsuchi](https://rentry.co/kintsuchi)
+World of us being bad at explanations without going on tangents: [/kintsuchi](https://rentry.co/kintsuchi)
 
 super amazing super cool music rentry that you should click on!! and click every link!! and send me cool feedback like "wow mel your music taste is the coolest" : [/rhode-strixman](https://rentry.co/rhode-strixman)
 
