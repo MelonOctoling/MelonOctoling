@@ -2,11 +2,11 @@ hey jsyk we are a system BUT we arent (as far as we know) disordered & we're als
 
 ok? ok!
 
+rarely update rentries so if sm seems odd then check last edit date
+
 main rentry: [lady-angel](https://rentry.co/lady-angel)
 
 we dont check ata or strawpage much because we are juggling a lot of things (its fun) and nobody sends us stuff so maybe js send something as a stopwatch to see how long you can go without being answered
-
-also rarely update rentries so if sm seems odd then check last edit date
 
 [shared rentry](https://rentry.co/d-freq-crush) w my epic brother
 
