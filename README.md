@@ -9,7 +9,7 @@ in process of official diagnosis... wow this is taking a long time
 
 ok? ok!
 
-rarely update rentries so if sm seems odd then check last edit date
+rarely update rentries so if sm seems odd then check last edit date. also be careful theres a really really long rentry that basically lists my stances through dni. honestly its more of a suggestion most of the time but i will block certain people on sight...! 
 
 group of immature incompetent losers
 
