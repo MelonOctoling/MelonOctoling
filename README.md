@@ -2,7 +2,7 @@
 
 ***
 
-plural sys . block if u cant stand endos!!! we r not here for syscourse (° _ °;) ... <br>
+plural sys . block if u cant tolerate endos!!! we r not here for syscourse (° _ °; ) ... <br>
 self diagnosed + in process of official diagnosis
 
 @sentientglitch 🫶🫶🫶 Mar.9.2026 lov uuu
