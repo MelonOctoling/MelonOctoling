@@ -3,7 +3,7 @@
 ***
 
 plural sys . block if u cant tolerate endos!!! we r pro endo & not here for syscourse (° _ °; ) ... <br>
-in process of official diagnosis... wow this is taking a long time
+in process of diagnosis for multiple things... wow this is taking a long time
 
 @sentientglitch 🫶🫶🫶 Mar.9.2026 lov uuu
 
